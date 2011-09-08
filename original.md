@@ -3,7 +3,6 @@ Alarm to the Unconverted
 
 Joseph Alleine, 1671
 
-* * *
 
 Introduction
 ------------
@@ -38,7 +37,6 @@ Others sit still, because they do not see the way of escape. To them I shall sho
 
 And finally, for the quickening of all, I shall close with the motives to conversion.
 
-* * *
 
 MISTAKES about Conversion
 -------------------------
@@ -75,7 +73,6 @@ I would be a false and faithless shepherd if I would not tell you, that you who 
 
 But if these persons come short of conversion, what shall I say of the profane person? It may be he will scarcely cast his eyes on, or lend his ear to this discourse; but if there be any such reading, or within hearing, he must know from the Lord that made him, that he is far from the kingdom of God. May a man keep company with the wise virgins, and yet be shut out; and shall not a companion of fools much more be destroyed? May a man be true in his dealings, and yet not be justified before God? What then will become of you, O wretched man, whose conscience tells you that you are false in your trade and false to your word? If men may be enlightened and brought to the external performance of holy duties, and yet go down to perdition for resting in them and sitting down short of conversion; what will become of you, O miserable men, who live without God in the world? What will become of you, O wretched sinners, with whom God is scarcely in all your thoughts; who are so ignorant that you cannot pray, or so careless that you will not? O repent and be converted, break off your sins by righteousness. Away to Christ for pardoning and renewing grace. Give up yourselves to Him, to walk with Him in holiness, or you shall never see God. O that you would heed the warnings of God! In His name I once more admonish you. Turn you at my reproof. Forsake the foolish, and live. Be sober, righteous, and godly. Wash your hands, you sinners; purify your hearts, you double-minded. Cease to do evil, learn to do well (Prov 1:23 and Prov 9:6; Titus 2:12; James 4:8; Isa 1:16-17). But if you will go on, you must die.
 
-* * *
 
 The NATURE of Conversion
 ------------------------
@@ -222,7 +219,7 @@ More particularly, in conversion—
 
 'Here', says the convinced sinner, 'I will venture; and if I perish, I perish; if I die, I will die here. But, Lord, do not let me perish under the eye of Your mercy. Entreat me not to leave You, or to return from following after You. Here I will throw myself; if You slay me, I will not go from Your door.'
 
-Thus the poor soul ventures on Christ and resolvedly adheres to Him. Before conversion, the man made light of Christ; he minded his farm, friends, pleasures, more than Christ; now, Christ is to him as his necessary food, his daily bread, the life of his heart, the staff of his life. His great desire is, that Christ may be magnified in him. His heart once said, as they to the spouse, 'What is your beloved more than another?' (Song 5:9). He found more sweetness in his merry company, wicked games, earthly delights, than in Christ. He took religion for a fancy, and the talk of great enjoyments for an idle dream; but now to him to live is Christ. Now he says, 'But whatever was to my profit I now consider loss for the sake of Christ. What is more, I consider everything a loss compared to the surpassing greatness of knowing Christ Jesus my Lord, for whose sake I have lost all things. I consider them rubbish, that I may gain Christ!' Philippians 3:7-8
+Thus the poor soul ventures on Christ and resolvedly adheres to Him. Before conversion, the man made light of Christ; he minded his farm, friends, pleasures, more than Christ; now, Christ is to him as his necessary food, his daily bread, the life of his heart, the staff of his life. His great desire is, that Christ may be magnified in him. His heart once said, as they to the spouse, 'What is your beloved more than another?' (Song 5:9). He found more sweetness in his merry company, wicked games, earthly delights, than in Christ. He took religion for a fancy, and the talk of great enjoyments for an idle dream; but now to him to live is Christ. Now he says, 'But whatever was to my profit I now consider loss for the sake of Christ. What is more, I consider everything a loss compared to the surpassing greatness of knowing Christ Jesus my Lord, for whose sake I have lost all things. I consider them rubbish, that I may gain Christ!' Phil 3:7-8
 
 ALL of Christ is accepted by the sincere convert. He loves not only the wages—but the work of Christ; not only the benefits—but the burden of Christ. He is willing not only to tread out the corn—but to draw under the yoke. He takes up the commands of Christ, yes, the cross of Christ.
 
@@ -260,7 +257,6 @@ O conscience! do your duty. In the name of the living God, I command you—disch
 
 
 
-* * *
 
 The NECESSITY of Conversion
 ---------------------------
@@ -385,7 +381,6 @@ Alas, for such sinners! must they perish at last by hundreds? What course shall 
 
 
 
-* * *
 
 The MARKS of the Unconverted
 ----------------------------
@@ -468,7 +463,6 @@ Oh therefore be diligent in your work; go to the bottom, search with candles; we
 
 
 
-* * *
 
 Miseries of the Unconverted
 ---------------------------
@@ -593,7 +587,6 @@ Oh, do not then contend with God. Repent and be converted, so none of this shall
 
 
 
-* * *
 
 Directions to the Unconverted
 -----------------------------
@@ -828,7 +821,6 @@ O blessed Trinity, O glorious Unity, I deliver myself up to You. Receive me: wri
 
 
 
-* * *
 
 The Motives to Conversion
 -------------------------
@@ -899,7 +891,6 @@ Answer: These you may perform by God's grace enabling; but let the next consider
 
 
 
-* * *
 
 Conclusion
 ----------
@@ -951,3 +942,463 @@ Why should I, who agonize for your salvation—be your accuser? Why should the p
 Beloved, if you have any pity for your perishing souls, close with the present offers of mercy. If the God that made you have any authority with you, obey His command and come in. If you are not the despisers of grace, and would not shut the doors of mercy against yourselves, repent and be converted. Let not heaven stand open for you in vain. Let not the Lord Jesus open His stores and bid you buy without money and without price in vain. Let not His Spirit and His ministers strive with you in vain, and leave you now at last unpersuaded, lest the sentence go forth against you, 'The bellows blow fiercely to burn away the lead with fire, but the refining goes on in vain; the wicked are not purged out. They are called rejected silver, because the Lord has rejected them' (Jer 6:29-30).
 
 'Father of spirits, take the heart in hand that is too hard for my weakness. Do not end—though I have done. A word from Your effectual power will do the work. O You who has the key of David, who opens and no man shuts—open this heart, as You did Lydia's, and let the King of Glory enter in, and make this soul Your captive. Let not the tempter harden him in delays. Let him not stir from this place, nor take his eyes from these lines, until he resolves to forego his sins, and accept life on Your self-denying terms. In Your Name, O Lord God, did I go forth to these labors; in Your name do I close them. Let not all the time they have cost be lost hours; let not all the thoughts of the heart, and all the pains that have been about them be lost labor. Lord, put Your hand upon the heart of this reader, and send Your Spirit, as once You did Philip to join himself to the chariot of the eunuch while he was reading the Word. And though I should never know it while I live—yet I beseech You, O Lord God, let it be found at the last day that some souls are converted by these labors; and let some be able to stand forth and say that by these persuasions they were won unto You. Amen, Amen.' Let him who reads say, Amen.
+
+
+# REGEX: (\d\W)?[A-Z][a-z]+\W(\d+(:\d+)?(-\d+)?,?)+
+[1 Cor 13:2-3]
+[1 Cor 13:3]:
+[1 Cor 1:30]:
+[1 Cor 2:14]:
+[1 Cor 4:15]:
+[1 Cor 4:20]:
+[1 Cor 5:11]:
+[1 Cor 6:10-11]:
+[1 Cor 6:9-10]:
+[1 Cor 9:25-27]:
+[1 John 2:15]:
+[1 John 3:14-15]:
+[1 John 3:3]:
+[1 John 5:3]:
+[1 Kings 22:8]:
+[1 Kings 8:38]:
+[1 Pet 1:2]:
+[1 Pet 1:23]:
+[1 Pet 1:3]:
+[1 Pet 1:8]:
+[1 Pet 2:9]:
+[1 Pet 3:18]:
+[1 Pet 4:18]:
+[1 Pet 5:8]:
+[1 Sam 10:26]:
+[1 Sam 15:29]:
+[1 Sam 17:40,45]:
+[1 Sam 28:15]:
+[1 Sam 2:25]:
+[1 Sam 3:10]:
+[1 Sam 6:20]:
+[1 Thess 4:6]:
+[1 Thess 5:19]:
+[1 Tim 2:5]:
+[1 Tim 6:10]:
+[2 Chron 36:16]:
+[2 Cor 4:3]:
+[2 Cor 5:17]:
+[2 Cor 5:18-19]:
+[2 Cor 5:20]:
+[2 Cor 6:2]:
+[2 Cor 7:9-10]:
+[2 Cor 8:5]:
+[2 Kings 10]:
+[2 Kings 12:2,7]:
+[2 Kings 5:13]:
+[2 Kings 7:3-4]:
+[2 Pet 1:10]:
+[2 Pet 2]:
+[2 Sam 12:7]:
+[2 Sam 23:5]:
+[2 Thess 1:8]:
+[2 Thess 1:9]:
+[2 Thess 2:13]:
+[2 Tim 2:13]:
+[2 Tim 2:19]:
+[2 Tim 2:26]:
+[2 Tim 3:15]:
+[2 Tim 3:5]:
+[Acts 16:17]:
+[Acts 16:28]:
+[Acts 16:30]:
+[Acts 16:31]:
+[Acts 24:25]:
+[Acts 26:18]:
+[Acts 26:27]:
+[Acts 2:37]:
+[Acts 3:19]:
+[Acts 3:26]:
+[Acts 5:31]:
+[Acts 8:23]:
+[Acts 8:36]:
+[Acts 9:31]:
+[Acts 9:4]:
+[Acts 9:6]:
+[Col 1:10]:
+[Col 4:6]:
+[Dan 4:27]:
+[Dan 5:2-3]:
+[Dan 9:24]:
+[Deut 28:30,38-41]:
+[Deut 29:19-20]:
+[Deut 30:19]:
+[Deut 32:41-42]:
+[Deut 32:46]:
+[Deut 32:6]:
+[Deut 5:27,29]:
+[Eph 1:19]:
+[Eph 1:3]:
+[Eph 1:4]:
+[Eph 2:1]:
+[Eph 2:10]:
+[Eph 2:12]:
+[Eph 2:2]:
+[Eph 2:2-3]:
+[Eph 2:4-5]:
+[Eph 2:5]:
+[Eph 4:18]:
+[Eph 4:19]:
+[Eph 5:26]:
+[Eph 5:5-6]:
+[Eph 6:12]:
+[Esther 5:6]:
+[Exod 34:7]:
+[Ezek 14:8]:
+[Ezek 16:30]:
+[Ezek 18:21-22]:
+[Ezek 18:30]:
+[Ezek 18:30-32]:
+[Ezek 22:14]:
+[Ezek 24:13]:
+[Ezek 33:11]:
+[Ezek 36:31]:
+[Ezek 5:8]:
+[Gal 1:10]:
+[Gal 3:10]:
+[Gal 5:21]:
+[Gal 5:24]:
+[Gal 6:14]:
+[Gal 6:15]:
+[Gal 6:7]:
+[Gen 19:15-17]:
+[Gen 24:49-58]:
+[Gen 45:28]:
+[Genesis 19:15-17]:
+[Heb 10:10]:
+[Heb 10:22]:
+[Heb 10:28-29]:
+[Heb 10:31]:
+[Heb 12:14]:
+[Heb 13:18]:
+[Heb 13:21]:
+[Heb 2:13]:
+[Heb 2:2-3]:
+[Heb 3:18]:
+[Heb 3:7]:
+[Heb 6:4]:
+[Hos 11:3]:
+[Hos 1:4]:
+[Hos 2:18-20]:
+[Hos 2:2]:
+[Hos 4:6]:
+[Isa 1:11]:
+[Isa 1:14]:
+[Isa 1:15]:
+[Isa 1:16]:
+[Isa 1:16-17]:
+[Isa 1:18]:
+[Isa 1:5]:
+[Isa 27:11]:
+[Isa 27:4-5]:
+[Isa 37:23]:
+[Isa 45:22]:
+[Isa 45:9]:
+[Isa 48:17]:
+[Isa 50:11]:
+[Isa 55:1]:
+[Isa 55:1-3]:
+[Isa 55:6-7]:
+[Isa 59:8]:
+[Isa 5:11-12,22]:
+[Isa 5:14]:
+[Isa 60:21]:
+[Isa 62:5]:
+[Isa 64:6]:
+[Isa 65:1-2]:
+[Isa 66:3]:
+[Isa 8:20]:
+[Isa 9:6]:
+[James 1:18]:
+[James 1:26]:
+[James 3:6]:
+[James 4:8]:
+[James 5:12]:
+[James 5:2-3]:
+[Jer 10:25]:
+[Jer 13:27]:
+[Jer 15:1]:
+[Jer 18:11]:
+[Jer 22:29]:
+[Jer 2:23]:
+[Jer 2:37]:
+[Jer 3:12-13]:
+[Jer 42:1-6]:
+[Jer 42:18]:
+[Jer 43:2]:
+[Jer 5:22]:
+[Jer 6:29-30]:
+[Jer 9:7]:
+[Job 11:20]:
+[Job 15:25]:
+[Job 15:4]:
+[Job 18:14]:
+[Job 18:4]:
+[Job 19:10]:
+[Job 1:12,15,17]:
+[Job 21:14]:
+[Job 23:12]:
+[Job 25:5]:
+[Job 26:14]:
+[Job 27:8]:
+[Job 42:6]:
+[Job 5:22-24]:
+[Job 8:12-13]:
+[Job 8:14]:
+[Job 8:15]:
+[Job 9]:
+[Job 9:31]:
+[Job 9:4]:
+[Joel 2:13]:
+[Joel 3:16]:
+[John 10:18,36]:
+[John 10:9]:
+[John 11:28]:
+[John 12:43]:
+[John 13:27]:
+[John 13:8]:
+[John 14:6]:
+[John 17]:
+[John 17:17]:
+[John 17:19]:
+[John 17:2]:
+[John 17:20]:
+[John 1:13]:
+[John 3:19,36]:
+[John 3:3]:
+[John 3:36]:
+[John 3:5-6]:
+[John 3:7]:
+[John 5:40]:
+[John 6:37]:
+[John 6:37,44]:
+[John 6:38,40]:
+[John 6:45]:
+[John 6:68]:
+[John 7:37]:
+[John 8:24]:
+[John 8:44]:
+[John 8:47]:
+[John 9:32]:
+[John 9:40]:
+[Jude 12]:
+[Jude 23]:
+[Judg 18:24]:
+[Lam 3:24]:
+[Lam 4:2,5]:
+[Lev 13:44]:
+[Luke 11:1]:
+[Luke 12:19]:
+[Luke 13:24]:
+[Luke 13:3]:
+[Luke 13:7]:
+[Luke 14:24]:
+[Luke 14:26]:
+[Luke 14:28-33]:
+[Luke 14:33]:
+[Luke 15:21]:
+[Luke 15:24]:
+[Luke 15:9]:
+[Luke 16:24]:
+[Luke 16:27-28]:
+[Luke 18:11]:
+[Luke 18:12]:
+[Luke 18:26]:
+[Luke 23:34]:
+[Luke 24:25]:
+[Luke 2:29]:
+[Luke 7:47]:
+[Mal 1:10]:
+[Mal 1:13]:
+[Mal 2:9]:
+[Mal 3:7]:
+[Mark 10:26]:
+[Mark 16:16]:
+[Mark 6:20]:
+[Mark 8:24]:
+[Matt 11:12]:
+[Matt 11:22-24]:
+[Matt 11:27]:
+[Matt 11:28-29]:
+[Matt 13:44-46]:
+[Matt 15:14]:
+[Matt 15:19]:
+[Matt 18:3]:
+[Matt 18:32-35]:
+[Matt 19:25]:
+[Matt 19:28]:
+[Matt 1:21]:
+[Matt 21:44]:
+[Matt 22:13]:
+[Matt 22:14]:
+[Matt 23:14]:
+[Matt 23:27]:
+[Matt 23:37]:
+[Matt 25:12]:
+[Matt 25:24]:
+[Matt 25:24-26]:
+[Matt 25:41]:
+[Matt 4:23-24]:
+[Matt 5:18]:
+[Matt 5:20]:
+[Matt 5:8]:
+[Matt 7:13-14]:
+[Matt 7:17-18]:
+[Matt 7:22]:
+[Matt 7:22-23]:
+[Matt 7:23]:
+[Mic 3:11]:
+[Mic 7:18]:
+[Neh 9:17]:
+[Neh 9:19]:
+[Num 16:26]:
+[Num 16:33-34]:
+[Phil 1:20]:
+[Phil 1:23]:
+[Phil 3:11-14]:
+[Phil 3:13]:
+[Phil 3:19]:
+[Phil 3:20]:
+[Phil 3:6]:
+[Phil 3:6-7]:
+[Phil 3:9]:
+[Philippians 3:7-8]:
+[Prov 11:4]:
+[Prov 11:7]:
+[Prov 13:20]:
+[Prov 14:32]:
+[Prov 19:12]:
+[Prov 19:29]:
+[Prov 1:10-19]:
+[Prov 1:20]:
+[Prov 1:23]:
+[Prov 1:24]:
+[Prov 1:24-27]:
+[Prov 23:34]:
+[Prov 27:3]:
+[Prov 28:13]:
+[Prov 28:9]:
+[Prov 29:1]:
+[Prov 2:3-5]:
+[Prov 30:12]:
+[Prov 30:2]:
+[Prov 3:13-15]:
+[Prov 3:17]:
+[Prov 4:15-19]:
+[Prov 4:18]:
+[Prov 6:17]:
+[Prov 6:21-22]:
+[Prov 6:26]:
+[Prov 7:21-23]:
+[Prov 7:22-23]:
+[Prov 8:32-33]:
+[Prov 9:5-6]:
+[Prov 9:6]:
+[Psalm 101:3,7]:
+[Psalm 101:7]:
+[Psalm 110:3]:
+[Psalm 113:6]:
+[Psalm 115:5-7]:
+[Psalm 116:7]:
+[Psalm 119:103,111,165]:
+[Psalm 119:103,127]:
+[Psalm 119:127-128]:
+[Psalm 119:138]:
+[Psalm 119:14,16,47]:
+[Psalm 119:165]:
+[Psalm 119:173]:
+[Psalm 119:31,112,117]:
+[Psalm 119:57]:
+[Psalm 119:60]:
+[Psalm 119:80]:
+[Psalm 119:81]:
+[Psalm 119:93]:
+[Psalm 119:96]:
+[Psalm 139:14]:
+[Psalm 14:3]:
+[Psalm 14:4]:
+[Psalm 15:1,3]:
+[Psalm 16:5-6]:
+[Psalm 19:10]:
+[Psalm 19:7-8]:
+[Psalm 19:8-10]:
+[Psalm 1:3]:
+[Psalm 24:3-4]:
+[Psalm 2:12]:
+[Psalm 34:16]:
+[Psalm 34:2]:
+[Psalm 37:13]:
+[Psalm 45:5]:
+[Psalm 4:6-7]:
+[Psalm 50:21]:
+[Psalm 50:22]:
+[Psalm 51:8]:
+[Psalm 62]:
+[Psalm 68:18]:
+[Psalm 68:21]:
+[Psalm 6:8]:
+[Psalm 73:22]:
+[Psalm 73:25-26]:
+[Psalm 76:7]:
+[Psalm 79:6]:
+[Psalm 7:11-13]:
+[Psalm 82:5]:
+[Psalm 85:8]:
+[Psalm 86:15]:
+[Psalm 90:11]:
+[Rev 10:6]:
+[Rev 14:10]:
+[Rev 14:3]:
+[Rev 18:2]:
+[Rev 1:5]:
+[Rev 21:8]:
+[Rev 21:8,27]:
+[Rev 22:17]:
+[Rev 2:22]:
+[Rev 3:14-16]:
+[Rev 3:16-20]:
+[Rev 3:17]:
+[Rev 3:18]:
+[Rev 3:20]:
+[Rev 5:12]:
+[Rev 6:15-17]:
+[Rom 10:1]:
+[Rom 10:17]:
+[Rom 10:6-8]:
+[Rom 11:26]:
+[Rom 12:1]:
+[Rom 13:4]:
+[Rom 2:8-9]:
+[Rom 5:6]:
+[Rom 6:16]:
+[Rom 7:12]:
+[Rom 7:15]:
+[Rom 7:18]:
+[Rom 7:24]:
+[Rom 7:9]:
+[Rom 8:13]:
+[Rom 8:20-21]:
+[Rom 8:22]:
+[Rom 8:30]:
+[Rom 8:5]:
+[Rom 8:8]:
+[Rom 9:17]:
+[Rom 9:22]:
+[Rom 9:27]:
+[Ruth 1:16]:
+[Song 2:16]:
+[Song 2:8]:
+[Song 4:16]:
+[Song 5:16]:
+[Song 5:9]:
+[Titus 1:16]:
+[Titus 2:12]:
+[Titus 3:5]:
+[Zech 11:8]:
+[Zech 4:7]:
+[Zech 5:1-3]:

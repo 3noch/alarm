@@ -11,7 +11,7 @@ An earnest invitation to sinners to turn to God
 
 
 Dearly Beloved,
-I gladly acknowledge myself a debtor to you, and am concerned, as I would be found a good steward of the household of God, to give to everyone his portion. But the physician is most concerned for those patients whose case is most doubtful and hazardous; and the father's pity is especially turned towards his dying child. So unconverted souls call for earnest compassion and prompt diligence to pluck them as brands from the burning ([Jude 23][]). Therefore it is to them I shall first apply myself in these pages.
+I gladly acknowledge myself a debtor to you, and am concerned, as I would be found a good steward of the household of God, to give to everyone his portion. But the physician is most concerned for those patients whose case is most doubtful and hazardous; and the father's pity is especially turned towards his dying child. So unconverted souls call for earnest compassion and prompt diligence to pluck them as brands from the burning ([Jude 23][1]). Therefore it is to them I shall first apply myself in these pages.
 
 But from where shall I fetch my argument? With what shall I win them? O that I could tell! I would write to them in tears, I would weep out every argument, I would empty my veins for ink, I would petition them on my knees. O how thankful should I be if they would be prevailed with to repent and turn.
 
@@ -1187,7 +1187,7 @@ Beloved, if you have any pity for your perishing souls, close with the present o
 [John 9:32]: <http://www.ebible.com/#John 9:32> (John 9:32)
 [John 9:40]: <http://www.ebible.com/#John 9:40> (John 9:40)
 [Jude 12]: <http://www.ebible.com/#Jude 12> (Jude 12)
-[Jude 23]: <http://www.ebible.com/#Jude 23> (Jude 23)
+[1]: <http://www.ebible.com/#Jude 23> (Jude 23)
 [Judg 18:24]: <http://www.ebible.com/#Judg 18:24> (Judg 18:24)
 [Lam 3:24]: <http://www.ebible.com/#Lam 3:24> (Lam 3:24)
 [Lam 4:2,5]: <http://www.ebible.com/#Lam 4:2,5> (Lam 4:2,5)

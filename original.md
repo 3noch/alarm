@@ -4,18 +4,20 @@ Alarm to the Unconverted
 Joseph Alleine, 1671
 
 
+
+
 Introduction
 ------------
 
-An earnest invitation to sinners to turn to God
+An earnest invitation to sinners to turn to God {1}
 
 
 Dearly Beloved,
-I gladly acknowledge myself a debtor to you, and am concerned, as I would be found a good steward of the household of God, to give to everyone his portion. But the physician is most concerned for those patients whose case is most doubtful and hazardous; and the father's pity is especially turned towards his dying child. So unconverted souls call for earnest compassion and prompt diligence to pluck them as brands from the burning ([Jude 23][Jude 23]). Therefore it is to them I shall first apply myself in these pages.
+I gladly acknowledge myself a debtor to you, and am concerned, as I would be found a good steward of the household of God, to give to everyone his portion. But the physician is most concerned for those patients whose case is most doubtful and hazardous; and the father's pity is especially turned towards his dying child. So unconverted souls call for earnest compassion and prompt diligence to pluck them as brands from the burning ([Jude 23][]). Therefore it is to them I shall first apply myself in these pages. {2}
 
-But from where shall I fetch my argument? With what shall I win them? O that I could tell! I would write to them in tears, I would weep out every argument, I would empty my veins for ink, I would petition them on my knees. O how thankful should I be if they would be prevailed with to repent and turn.
+But from where shall I fetch my argument? With what shall I win them? O that I could tell! I would write to them in tears, I would weep out every argument, I would empty my veins for ink, I would petition them on my knees. O how thankful should I be if they would be prevailed with to repent and turn. {3}
 
-How long have I labored for you! How often would I have gathered you! This is what I have prayed for and studied for these many years, that I might bring you to God. O that I might now do it! Will you yet be entreated?
+How long have I labored for you! How often would I have gathered you! This is what I have prayed for and studied for these many years, that I might bring you to God. O that I might now do it! Will you yet be entreated? {4}
 
 'But, O Lord, how insufficient I am for this work. Alas, with what shall I pierce the scales of Leviathan, or make the heart feel that is hard as the nether millstone? Shall I go and speak to the grave, and expect the dead will obey me and come forth? Shall I make an oration to the rocks, or declaim to the mountains, and think to move them with arguments? Shall I make the blind to see? From the beginning of the world was it not heard that a man opened the eyes of the blind ([John 9:32][]). But, O Lord, You can pierce the heart of the sinner. I can only draw the bow at a venture—but may You direct the arrow between the joints of the harness. Slay the sin, and save the soul of the sinner who casts his eyes on these pages.
 
